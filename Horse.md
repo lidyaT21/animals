@@ -1,0 +1,4 @@
+# **HORSE**
+![HORSE](https://images.unsplash.com/photo-1460376155535-5536688fb80b?q=80&w=2072&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
+
+_A **horse** is a large, domesticated mammal known for its strength, speed, and grace. Scientifically classified as Equus ferus caballus, horses have been used by humans for transportation, work, and recreation for thousands of years. They have a muscular build, long legs, and a flowing mane and tail. Horses are herbivores, typically grazing on grass, and they communicate through vocalizations, body language, and ear movements. They are highly intelligent animals, capable of forming strong bonds with humans and other animals, and are often trained for riding, racing, and various equestrian sports._
