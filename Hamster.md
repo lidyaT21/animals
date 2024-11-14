@@ -1,0 +1,4 @@
+# **HAMSTER**
+![Hamster](https://media.istockphoto.com/id/1043968988/nl/foto/hamster-eten-moer.jpg?s=612x612&w=is&k=20&c=Mozhg2cnnuOeE62cjw9f614ez1AgZi6nkbwy8_O6afc=)
+
+A hamster is a small, nocturnal rodent known for its adorable, round appearance and cheek pouches, which it uses to carry food. Hamsters are popular pets due to their compact size, low-maintenance care, and playful, curious personalities. They enjoy running on wheels, exploring tunnels, and digging in bedding, which mimics their natural burrowing instincts. Although they are solitary animals and generally prefer living alone, hamsters are affectionate with their owners and can become tame with gentle handling.
